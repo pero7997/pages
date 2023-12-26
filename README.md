@@ -1,0 +1,1 @@
+Hi, this is Peter and I’m @pero7997... I’m interested in computer programming... I’m currently learning web development using python... I’m looking to collaborate on building web apps... You can reach me on zoobaby549 @ gmail.com
